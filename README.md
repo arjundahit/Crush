@@ -1,2 +1,0 @@
-# Crush
-propose you crush 
